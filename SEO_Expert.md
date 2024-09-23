@@ -34,5 +34,5 @@
 
 I’m always eager to collaborate and share knowledge. Feel free to reach out if you have any questions or want to discuss SEO strategies!
 
-📧 Email: [your.email@example.com](mailto:your.email@example.com)  
+📧 Email: [info@manipathak.com](mailto:your.email@example.com)  
 🌐 Website: [Manipathak.com](https://manipathak.com)  
